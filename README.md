@@ -1,0 +1,1 @@
+# Inventory_Pictures_MOB2
